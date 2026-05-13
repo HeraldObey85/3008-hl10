@@ -1,4 +1,4 @@
-#  
+#  3008 premium Script is the best 3008 Script, featuring silent aim and auto-heal. Safe and powerful for all your needs.
 
 
 
